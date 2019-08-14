@@ -22,7 +22,7 @@
 </div><br/>
 
 <div align="center">
-<img src="https://i.ntdtv.com/assets/uploads/2019/05/1905181950541973-1.jpg"/><br/>
+<img src="https://i.ntdtv.com/assets/uploads/2019/05/1905181951021973-1-600x400.jpg"/><br/>
 2019年5月18日，五千名法轮功学员在纽约总督岛排出“法轮图形”和“真、善、忍”三个大字
 </div><br/>
 
