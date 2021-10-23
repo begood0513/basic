@@ -73,7 +73,7 @@
 
 法轮大法以“真、善、忍”指导学员修炼，要求学员做一个好人。其强大的道德力量是社会稳定的牢固基石，也为纷争迷茫的人类社会指出了一条重返传统之路。二十年的实践证明，法轮大法是中国人重建道德体系、恢复传统文化、走向未来的希望。
 <div align="center">
-<img src="http://gfw-breaker.win/imgs/exhibit-uk1.jpg?new" width="600px"/><br/>
+<img src="https://i.epochtimes.com/assets/uploads/2012/12/1212220626312396.jpg" width="600px"/><br/>
 2012年12月18日至21日，真善忍国际美展在英国国会大廈的上层等候大厅举办
 </div><br/>
 
